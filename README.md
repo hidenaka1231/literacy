@@ -1,1 +1,1 @@
-# lireracy
+# literacy
